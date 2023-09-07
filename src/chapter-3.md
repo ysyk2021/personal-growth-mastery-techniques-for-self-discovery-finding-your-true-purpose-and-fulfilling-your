@@ -1,4 +1,3 @@
-# Chapter 3: Exploring Self-discovery Techniques
 
 ## Exploring Self-discovery Techniques
 

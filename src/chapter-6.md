@@ -1,5 +1,3 @@
-Chapter 6: Developing Positive Habits and Routines
-==================================================
 
 In this chapter, we'll explore the importance of developing positive habits and routines to support personal growth and goal achievement. By building habits that align with your values and goals, you can improve productivity, time management, and overall well-being.
 

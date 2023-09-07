@@ -1,5 +1,3 @@
-Chapter 8: Cultivating a Growth Mindset
-=======================================
 
 A growth mindset is characterized by a belief that intelligence and abilities can be developed through effort and learning. Cultivating a growth mindset can have several benefits for individuals, including improved creativity, adaptability, and problem-solving. In this chapter, we will discuss strategies for embracing challenges, learning from failure, and seeking feedback to build a growth mindset and achieve personal growth mastery.
 

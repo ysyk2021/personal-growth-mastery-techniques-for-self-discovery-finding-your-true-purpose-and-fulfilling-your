@@ -1,5 +1,3 @@
-Strategies for Recognizing and Challenging Self-limiting Beliefs to Improve Self-confidence and Resilience
-=======================================================================================================================================================
 
 In this chapter, we will explore strategies for recognizing and challenging self-limiting beliefs to improve self-confidence and resilience. We will discuss how self-limiting beliefs can hold us back from reaching our full potential, and how to overcome these beliefs to achieve personal growth mastery.
 

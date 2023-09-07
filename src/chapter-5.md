@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Self-Limiting Beliefs
-===========================================
 
 In this chapter, we'll explore the detrimental effects of self-limiting beliefs and how to overcome them. By recognizing and challenging these negative thoughts, you can improve self-confidence and resilience for greater achievement, creativity, and personal growth.
 

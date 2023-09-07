@@ -1,4 +1,4 @@
-# Introduction
+
 
 Personal growth is an ongoing journey of self-discovery, self-awareness, and self-improvement. It involves identifying one's strengths, weaknesses, values, and passions, and using this knowledge to find one's true purpose and fulfill their potential.
 
@@ -9,3 +9,7 @@ This book, "Personal Growth Mastery: Techniques for Self-discovery, Finding Your
 Whether you are just beginning your personal growth journey or have been on the path for some time, this book offers valuable insights and guidance to help you achieve your full potential. By applying the techniques and strategies presented in this book, you can unlock your true purpose, overcome obstacles, and live a more fulfilling and meaningful life.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
