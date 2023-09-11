@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Self-Limiting Beliefs
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful process of overcoming self-limiting beliefs. These beliefs can hold us back from realizing our full potential and hinder our personal growth. By identifying and challenging these beliefs, we can break free from their constraints and unlock new possibilities for ourselves. Let's delve into effective techniques and strategies for overcoming self-limiting beliefs.
 

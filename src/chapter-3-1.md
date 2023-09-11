@@ -1,5 +1,4 @@
-Chapter 8: Exploring Self-Discovery Techniques
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into various self-discovery techniques that can help you uncover your true purpose and fulfill your potential. Self-discovery is a journey of introspection and exploration, allowing you to gain a deeper understanding of yourself and your values. By embracing these techniques, you can unlock hidden insights and embark on a path of personal growth. Let's explore some effective strategies for self-discovery.
 

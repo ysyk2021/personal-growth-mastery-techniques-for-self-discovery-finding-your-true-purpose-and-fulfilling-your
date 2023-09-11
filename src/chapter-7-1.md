@@ -1,5 +1,4 @@
-Chapter 9: Fostering Positive Relationships
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies for fostering positive relationships. Building and maintaining healthy connections with others is essential for personal growth, finding your true purpose, and fulfilling your potential. Let's delve into practical approaches to cultivate meaningful and positive relationships.
 

@@ -1,5 +1,4 @@
-Chapter 13: Strategies for Embracing Challenges, Learning from Failure, and Seeking Feedback to Build a Growth Mindset
-======================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for embracing challenges, learning from failure, and seeking feedback to build a growth mindset. A growth mindset is essential for personal growth mastery as it empowers you to see challenges as opportunities for growth, embrace failure as a stepping stone to success, and actively seek feedback to improve. Let's delve into techniques that will help you cultivate a growth mindset.
 

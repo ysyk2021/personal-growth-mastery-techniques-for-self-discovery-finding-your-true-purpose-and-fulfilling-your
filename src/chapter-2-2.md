@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Identifying Personal Values and Setting Clear Life Goals
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies and techniques for identifying personal values and setting clear life goals. These strategies will help you gain a deeper understanding of your core values and aspirations, enabling you to set meaningful goals that align with your true purpose. Let's delve into the practical approaches for identifying personal values and setting clear life goals.
 

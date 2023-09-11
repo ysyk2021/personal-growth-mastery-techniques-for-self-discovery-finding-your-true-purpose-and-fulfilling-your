@@ -1,5 +1,4 @@
-Chapter 4: Defining Personal Values and Life Goals
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of defining your personal values and life goals in your journey towards personal growth. Understanding your values and goals is essential for creating a fulfilling life that aligns with your true purpose. Let's delve into techniques and strategies for defining personal values and life goals.
 

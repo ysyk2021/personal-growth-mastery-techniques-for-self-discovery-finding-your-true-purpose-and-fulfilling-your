@@ -1,5 +1,4 @@
-Chapter 12: Developing Positive Habits and Routines
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing positive habits and routines in your personal growth journey. Cultivating these habits can enhance productivity, well-being, and help you reach your fullest potential. Let's dive into techniques and strategies for developing positive habits and routines.
 

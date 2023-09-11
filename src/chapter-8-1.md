@@ -1,5 +1,4 @@
-Chapter 14: Cultivating a Growth Mindset
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of cultivating a growth mindset. A growth mindset is the belief that your abilities and intelligence can be developed through dedication, effort, and learning. By cultivating a growth mindset, you can unlock your full potential, embrace challenges, persist in the face of setbacks, and achieve personal growth mastery. Let's explore techniques to cultivate a growth mindset.
 

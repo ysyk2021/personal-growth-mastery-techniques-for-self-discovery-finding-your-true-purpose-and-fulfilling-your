@@ -1,5 +1,4 @@
-Chapter 8: Uncovering Your True Purpose
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of uncovering your true purpose. Discovering your life's purpose can bring a sense of fulfillment and direction to your personal growth journey. Let's delve into techniques and strategies that can help you uncover your true purpose.
 
